@@ -11,4 +11,4 @@
 **My Socials:**
 - Look at my Content on YouTube: **https://www.youtube.com/channel/UCEe5cV5FS7grIn0HLS_YVtA**
 - Follow me on Twitter/X: **https://x.com/derdiedasjan136**
-- Contact me Personally: **jan.felix.schaefer1@gmail.com**
+- Send me a DM over Discord: **uunfunnyguy**
