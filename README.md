@@ -7,7 +7,8 @@
 
 **Current Projects:**
 - a Minecraft Project: **Custom Battle's Arena**
-![Under-Construction_Playholder](https://github.com/derdiedasjan/jan.github.io/assets/108225253/8d59fbc1-b633-4711-8945-cd859cd1f59b)
+![Under-Construction_Playholder](https://github.com/derdiedasjan/jan.github.io/assets/108225253/104ef7f8-a0f2-449b-87ca-b654f6708c06)
+
 
 
 **My Socials:**
