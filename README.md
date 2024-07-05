@@ -1,6 +1,6 @@
 <h3 align="center">Amateur Developer & Gamer, focusing on GDScript and MCFunction. always trying to Create Something</h3>
 
-<h2 align="center">Current Projects:</h2>
+<h1 align="center">Current Projects:</h1>
 
 - a Minecraft Project: **Custom Battle's Arena**
 
