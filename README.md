@@ -1,5 +1,5 @@
 
-![jan_profile](https://github.com/derdiedasjan/jan.github.io/assets/108225253/71635ec5-07d9-4bb9-bced-58fe2b2080ae)
+![Jan_profile](https://github.com/derdiedasjan/jan.github.io/assets/108225253/bb68515a-4403-491d-9055-89adb96ea819)
 
 **DerdiedasJan**
 
