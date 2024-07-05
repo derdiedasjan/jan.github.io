@@ -10,6 +10,8 @@
 
 ![Under-Construction_Playholder](https://github.com/derdiedasjan/jan.github.io/assets/108225253/104ef7f8-a0f2-449b-87ca-b654f6708c06)
 
+a Minecraft Java Minigame based on Minecraft Legacy Editions old Battle Minigame
+
 - **Create: New World**
 
 **My Socials:**
