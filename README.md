@@ -3,7 +3,7 @@
 
 **DerdiedasJan**
 
-<h3 align="left">Amateur Developer & Gamer, focusing on GDScript and MCFunction. always trying to Create Something.        
+<h3 align="left">Amateur Developer & Gamer, focusing on GDScript and MCFunction. always trying to Create Something.
 Fan of Anything Horror and Action</h3>
 
 **Current Projects:**
