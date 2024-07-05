@@ -1,4 +1,5 @@
-![XpNIJku4_200x200](https://github.com/derdiedasjan/jan.github.io/assets/108225253/0b44812d-35cb-4ffc-b0e6-ae37fb7616cc)
+
+![jan_profile](https://github.com/derdiedasjan/jan.github.io/assets/108225253/71635ec5-07d9-4bb9-bced-58fe2b2080ae)
 
 **DerdiedasJan**
 
